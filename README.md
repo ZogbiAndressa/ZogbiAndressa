@@ -1,7 +1,7 @@
 # Andressa Zogbi
-Aspirante a cientista de dados | Apaixonada por tecnologia.
+Graduanda em Ciências Sociais na UFRJ | Entusiasta da tecnologia
 
-Dedicada ao aprendizado de ciência de dados e apaixonada por explorar suas aplicações. Estou em busca de desafios onde posso contribuir com minha paixão pela área e meu constante desejo de aprender.
+
 
 ### Conecte-se comigo 🟢
 
